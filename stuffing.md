@@ -1,16 +1,21 @@
 # Ingredients
 
-- 2 1/2 pounds (1.25 kg) high-quality sandwich bread or soft Italian or French bread (about 2 loaves), cut into 3/4-inch dice (about 5 quarts)
-- 1/2 Cup Butter
-- 1 1/2 Pounds (680 g) Sage Sausage
-- 1 Large Onion, finely chopped (about 12 ounces; 350 g)
-- 4 Ribs Celery, finely chopped (about 12 ounces; 350 g)
-- 2 Cloves Garlic
-- 1/4 Cup Minced Fresh Sage (or 2 Teaspoons Dried Sage)
-- 4 Cups Stock
-- 3 Large Eggs
-- 1/4 Cup Minced Parsley
+- 465 grams of sliced white bread, cut into croutons
+- Large knob of butter
+- 400 grams plain sausage
+- 1 onion, finely chopped
+- 3 ribs of celery, finely chopped
+- 2 cloves garlic, grated
+- 2 teaspoons dried sage
+- 3 cups tock
+- 3 medium eggs
+- 1/4 cup minced parsley
 
 # Method
 
-1. 135°C oven for about 45 minutes
+1. 135°C oven for about 45 minutes to dry out bread
+2. Over medium-high heat place the butter until foaming subsides. Add the sausage and mash. Cook until no pink left.
+3. Add the onion, celery, garlic, and sage and cook until softened
+4. Remove from heat and add the stock, egg, and parsley mixture
+5. Stir in the croutons
+6. Bake covered for 45 minutes, then remove foil and cook until golden brown, usually 15 to 20 minutes
